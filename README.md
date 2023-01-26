@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **mohammad.j.tech@gmail.com**
 
-- 📄 Discover my experiences (Resume(https://drive.google.com/file/d/1LKAXk4tDaN1N7-SxLqy80XRVDnWXV18Y/view?usp=sharing))
+- 📄 Discover my experiences (Resume(https://drive.google.com/file/d/1LKAXk4tDaN1N7-SxLqy80XRVDnWXV18Y/view?usp=sharing_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
